@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Zeng-Rooo
-- 👀 I’m interested in ... making 2D game art.
+- 👀 I’m interested in ... making game.
 - 🌱 I’m currently learning ... Game Design
 - 💞️ I’m looking to collaborate on ... making games(Best be 2D)
 - 📫 How to reach me ... Discord: rong_z
